@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Leo Davidov
+- 👋 Hi, I’m Leonid Davidov
 - 📫 How to reach me:
 1. Linked In: https://www.linkedin.com/in/leonid-davidov-785552218/
 
